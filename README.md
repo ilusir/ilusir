@@ -1,1 +1,1 @@
-Hola, solo soy un programador ordinario, nada que agregar.
+Hola, solo soy un programador ordinario, nada que agregar
